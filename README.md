@@ -16,6 +16,7 @@
 
 - cyber security enthusiast
 - in my 2nd year of school
+- no certificates yet
 - interest in cloud security
 
 <br>
